@@ -1,0 +1,1 @@
+The light takes you up into a ship, where you are greeted by The Ancients. They believe that humans are finally ready to become The Fifth Race and take you back to their home planet.
