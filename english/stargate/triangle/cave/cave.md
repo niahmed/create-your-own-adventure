@@ -1,1 +1,1 @@
-You escape the beam of light into the dark and cold cave. You turn on a flashlight and you and gaze into the eyes of the evil Goa'uld System Lord, Apophis. How is he still alive?
+You escape the beam of light into the dark and cold cave. You turn on a flashlight and you gaze into the eyes of the evil Goa'uld System Lord, Apophis. How is he still alive?
